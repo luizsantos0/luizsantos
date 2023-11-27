@@ -2,7 +2,7 @@
 
 - 🐱‍🏍 Apaixonado por Tecnologia
 - 😊 Jovem dev Iniciante
-- 🐱‍🚀 15 Aninhos
+- 🐱‍🚀 17 Anos
 
 <div align="center">
   <a href="https://github.com/luizsantos0">
